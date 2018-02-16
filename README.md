@@ -1,4 +1,5 @@
 # Aula2.1
-Bruna marquezine
+Angelina J
 gloria pires
 cleo pires
+daniel
